@@ -1,4 +1,4 @@
-#  
+#  spin a soccer card Scripts premium offers the most advanced spin a soccer card Script, with anti-ban and unlimited stamina. Perfect for dominating
 
 
 
